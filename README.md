@@ -1,2 +1,2 @@
 # hello-world
-I have the highground!
+Don't chocke on your aspirations my apprentice!
